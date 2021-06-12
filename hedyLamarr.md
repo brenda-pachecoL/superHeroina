@@ -1,1 +1,2 @@
 # Hedy Lamarr
+Hedwig Eva Maria Kiesler, conocida como Hedy Lamarr, ​ fue una actriz de cine e inventora austriaca. Fue co-inventora junto a George Antheil de la primera versión del espectro ensanchado que permitiría las comunicaciones inalámbricas de largas distancias
